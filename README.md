@@ -1,2 +1,0 @@
-# Qalynmal
-assss3
